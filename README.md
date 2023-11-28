@@ -1,0 +1,1 @@
+# Hallstahammars kommun
